@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Hardik06122001
+- 👋 Hi, I’m @Hardik_5969
 - 👀 I’m interested in ... learning.
 - 🌱 I’m currently learning ... python 
 - 📫 How to reach me ... email me at: nikku.sharmaklk@gmail.com
